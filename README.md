@@ -1,1 +1,1 @@
-# chatgpt https://c1ns.cn/f7Cgw
+# AI写作
